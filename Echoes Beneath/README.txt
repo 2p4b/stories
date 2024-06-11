@@ -1,8 +1,8 @@
-Once upon a time, deep within the hidden veins of the Earth, there lived a man named Ezra and his son, Xavier. Their home was a sprawling network of caverns, a labyrinthine sanctuary shielded from the world above. For countless generations, their kind—wise, resourceful beings—had thrived in the obscurity of these subterranean depths, haunted by a relentless fear: the day the humans would discover them.
+Once upon a time, deep within the hidden veins of the Earth, there lived a man named Ezra and his son, Xavier. Their home was a sprawling network of caverns, a labyrinthine sanctuary shielded from the world above. For countless generations, their kind wise, resourceful beings had thrived in the obscurity of these subterranean depths, haunted by a relentless fear: the day the humans would discover them.
 
-Ezra, a man of fifty-two years, bore the weight of his lineage's secrets and fears with a heavy heart. His life was a tapestry of quiet resilience and unspoken sorrow. He was skilled in many things—carving tools from rock, cultivating rare underground flora, and navigating the maze-like corridors of their domain. Yet, his greatest struggle was protecting his only son from the unknown terrors of the surface world.
+Ezra, a man of fifty-two years, bore the weight of his lineage's secrets and fears with a heavy heart. His life was a tapestry of quiet resilience and unspoken sorrow. He was skilled in many things carving tools from rock, cultivating rare underground flora, and navigating the maze-like corridors of their domain. Yet, his greatest struggle was protecting his only son from the unknown terrors of the surface world.
 
-Xavier, at the tender age of ten, was a beacon of innocence and curiosity amidst the shadows. His eyes, wide and bright, sparkled with an unquenchable thirst for knowledge. He was captivated by the stories Ezra shared—tales of immense oceans, towering mountains, and cities that brushed the sky. But most of all, he was intrigued by the humans, the mysterious beings who roamed the lands above.
+Xavier, at the tender age of ten, was a beacon of innocence and curiosity amidst the shadows. His eyes, wide and bright, sparkled with an unquenchable thirst for knowledge. He was captivated by the stories Ezra shared tales of immense oceans, towering mountains, and cities that brushed the sky. But most of all, he was intrigued by the humans, the mysterious beings who roamed the lands above.
 
 “Papa,” Xavier would often ask, his voice filled with wonder, “why do we stay down here? Is the world above truly so dangerous?”
 
@@ -24,7 +24,7 @@ Ezra's heart wrenched at the plea. He wanted nothing more than to grant his son 
 
 “But Papa,” Xavier’s voice quivered with desperate determination, “isn’t living in fear a kind of prison? Don’t we deserve to see the world, even just once?”
 
-Ezra's resolve faltered. He remembered his own dreams from long ago, the desires he had buried deep under layers of responsibility and fear. Looking into Xavier’s hopeful eyes, he saw a reflection of his younger self—a spark that had been extinguished too soon.
+Ezra's resolve faltered. He remembered his own dreams from long ago, the desires he had buried deep under layers of responsibility and fear. Looking into Xavier’s hopeful eyes, he saw a reflection of his younger self a spark that had been extinguished too soon.
 
 “Alright, Xavier,” he said softly, the weight of his decision heavy on his heart, “we’ll go to the surface. But only for a short time, and you must promise to stay close to me.”
 
@@ -78,7 +78,7 @@ One fateful day, as he wandered through a dense forest, he encountered a group o
 
 In his final moments, Xavier thought of his father, of the love and sacrifice that had guided him to this point. He wished he could see Ezra one last time, to tell him that he was sorry, that he had tried to find a place for their kind in the world above. His last breath was a whisper of love, carried away on the wind as the light faded from his eyes.
 
-Back in the cavern, Ezra felt a sharp, piercing pain in his heart—a deep, unexplainable sorrow. He knew, without knowing how, that Xavier was gone. The weight of his loss crushed him, leaving him hollow and desolate. He had given his son the freedom he desired, but it had come at the greatest cost of all.
+Back in the cavern, Ezra felt a sharp, piercing pain in his heart a deep, unexplainable sorrow. He knew, without knowing how, that Xavier was gone. The weight of his loss crushed him, leaving him hollow and desolate. He had given his son the freedom he desired, but it had come at the greatest cost of all.
 
 The days that followed were a blur of grief and silence. Ezra wandered the empty corridors of their home, a ghost of the man he once was. His only solace was the memory of Xavier’s joy, the fleeting moments of happiness they had shared. But even those memories were tinged with the bitter sting of regret.
 
